@@ -1,5 +1,6 @@
 # GLOBAL INNOVATION
 >*“The secret of change is to focus all of your energy, not on fighting the old, but building on the new."
+>
 >-Socrates (470-399 BC), Philosopher
 
 This saying holds even today. After more than a year of fighting with the pandemic together, if one thing we can all agree upon is that new times demand new ideas. 
